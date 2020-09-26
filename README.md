@@ -1,3 +1,4 @@
 # Hyunsoo Woo
+for my cv, here's the link
 
-thestrokes319@gmail.com 
+https://hyaluronicc.github.io/resume/
